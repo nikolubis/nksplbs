@@ -1,4 +1,4 @@
-<img src="https://pin.it/2ilXLrH3C" width="100%">
+<img src="https://share.google/TseBowiyJaY667Rg2" width="100%">
 
 # Hi there! 👋 I'm Niko
 
