@@ -30,5 +30,5 @@
 
 ## 📫 Contact Me
 
-Instagram: @nksplbs 
+Instagram: @nksplbs
 Email: loxxaa35@gmail.com
