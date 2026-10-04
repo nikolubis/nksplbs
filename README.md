@@ -1,3 +1,5 @@
+<img src="https://pin.it/2ilXLrH3C" width="100%">
+
 # Hi there! 👋 I'm Niko
 
 ## 💻 About Me
